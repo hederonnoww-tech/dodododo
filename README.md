@@ -1,2 +1,3 @@
 # dodododo
-mama im a criminal
+mama im a criminal.
+ja bro, stjal en twix i bilka :c
